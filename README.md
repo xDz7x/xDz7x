@@ -1,0 +1,3 @@
+- 👋 Hi, I'm Dz7x!
+- 📫 How to reach me ->Discord: ! Dz7x#1997
+- ✨ Currently Working on High Roleplay
